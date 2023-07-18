@@ -1,7 +1,5 @@
 # Introduction
 
-Introduction
-
 Career growth and advancement are essential for professional success and personal fulfillment. However, it can be challenging to build the skills and expertise needed to achieve career goals. The Promotable Employee: Techniques for Building Skills for Career Growth is a guide to developing the skills and competencies that will help you advance your career.
 
 In this book, we will explore the key principles of career development and provide practical strategies and techniques for building the skills and knowledge needed to become a promotable employee. We will cover topics such as:
