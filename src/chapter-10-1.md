@@ -1,4 +1,4 @@
-Techniques for navigating setbacks and challenges during career growth
+Techniques For Navigating Setbacks And Challenges During Career Growth
 ======================================================================================================================
 
 Setbacks and challenges are inevitable in any career growth journey. However, how we navigate them is critical in determining our ultimate success. In this chapter, we'll explore techniques for navigating setbacks and challenges during career growth.
