@@ -3,7 +3,7 @@ Active Listening, Conflict Resolution, and Relationship-Building
 
 In this chapter, we will explore the essential skills of active listening, conflict resolution, and relationship-building. These skills are crucial for becoming a promotable employee, as they contribute to effective communication, collaboration, and professional growth.
 
-Section 1: The Art of Active Listening
+The Art of Active Listening
 --------------------------------------
 
 Active listening is a fundamental skill that enhances communication and fosters positive relationships in the workplace. By actively engaging in conversations, you demonstrate respect, empathy, and understanding towards others. Here are some key techniques for mastering active listening:
@@ -26,7 +26,7 @@ Active listening is a fundamental skill that enhances communication and fosters 
 * Summarize and paraphrase to confirm your understanding.
 * Encourage the speaker to elaborate by asking open-ended questions.
 
-Section 2: Conflict Resolution Techniques
+Conflict Resolution Techniques
 -----------------------------------------
 
 Conflict is inevitable in any workplace environment. However, how conflicts are managed can significantly impact team dynamics and productivity. Here are some techniques for effectively resolving conflicts:
@@ -49,7 +49,7 @@ Conflict is inevitable in any workplace environment. However, how conflicts are 
 * Listen actively and refrain from interrupting or becoming defensive.
 * Seek common ground and work towards a win-win resolution.
 
-Section 3: Building Positive Relationships
+Building Positive Relationships
 ------------------------------------------
 
 Establishing positive relationships with colleagues, superiors, and subordinates is vital for career growth and professional success. Here are some strategies for building strong relationships:
