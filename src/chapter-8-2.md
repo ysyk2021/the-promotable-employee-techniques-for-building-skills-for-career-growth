@@ -1,7 +1,7 @@
 Prioritization, Goal Setting, and Eliminating Distractions
 ===================================================================
 
-In the book **"The Promotable Employee: Techniques for Building Skills for Career Growth,"** this chapter focuses on the significance of prioritization, goal setting, and eliminating distractions in achieving professional success. By mastering these skills, individuals can enhance productivity, maintain focus, and make progress towards their career goals.
+This chapter focuses on the significance of prioritization, goal setting, and eliminating distractions in achieving professional success. By mastering these skills, individuals can enhance productivity, maintain focus, and make progress towards their career goals.
 
 Understanding Prioritization: The Key to Productivity
 -----------------------------------------------------

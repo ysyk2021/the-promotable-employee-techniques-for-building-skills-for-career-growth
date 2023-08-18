@@ -1,7 +1,7 @@
 Strategies for Developing Leadership and Management Skills
 ===================================================================
 
-In the book **"The Promotable Employee: Techniques for Building Skills for Career Growth,"** this chapter explores strategies for developing leadership and management skills. These skills are crucial for professionals who aspire to take on leadership roles, effectively manage teams, and drive organizational success.
+This chapter explores strategies for developing leadership and management skills. These skills are crucial for professionals who aspire to take on leadership roles, effectively manage teams, and drive organizational success.
 
 Understanding Leadership and Management
 ---------------------------------------

@@ -1,7 +1,7 @@
 Understanding the Importance of Building Skills for Career Growth
 ==========================================================================
 
-In the book **"The Promotable Employee: Techniques for Building Skills for Career Growth,"** this chapter delves into the significance of building skills for career growth. In today's dynamic and competitive professional landscape, acquiring and honing relevant skills is essential for individuals who aspire to advance their careers and achieve long-term success.
+This chapter delves into the significance of building skills for career growth. In today's dynamic and competitive professional landscape, acquiring and honing relevant skills is essential for individuals who aspire to advance their careers and achieve long-term success.
 
 The Changing Nature of Work
 ---------------------------

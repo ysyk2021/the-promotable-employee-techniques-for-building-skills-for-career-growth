@@ -1,7 +1,7 @@
 Project Management, Delegation, and Team Building
 ==========================================================
 
-In the book **"The Promotable Employee: Techniques for Building Skills for Career Growth,"** this chapter focuses on project management, delegation, and team building. These skills are critical for professionals seeking to excel in their careers and take on leadership roles within their organizations.
+This chapter focuses on project management, delegation, and team building. These skills are critical for professionals seeking to excel in their careers and take on leadership roles within their organizations.
 
 Overview of Project Management
 ------------------------------

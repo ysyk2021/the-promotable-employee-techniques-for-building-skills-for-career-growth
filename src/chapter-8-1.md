@@ -1,7 +1,7 @@
 Techniques for Improving Time Management and Productivity Skills
 =========================================================================
 
-In the book **"The Promotable Employee: Techniques for Building Skills for Career Growth,"** this chapter focuses on effective techniques for improving time management and productivity skills. By mastering these techniques, individuals can enhance their efficiency, maximize their output, and advance their careers.
+This chapter focuses on effective techniques for improving time management and productivity skills. By mastering these techniques, individuals can enhance their efficiency, maximize their output, and advance their careers.
 
 The Importance of Time Management
 ---------------------------------

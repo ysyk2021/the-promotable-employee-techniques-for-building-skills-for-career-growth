@@ -1,7 +1,7 @@
 Strategies for Self-Assessment and Goal Setting for Career Growth
 ==========================================================================
 
-In the book **"The Promotable Employee: Techniques for Building Skills for Career Growth,"** this chapter focuses on the importance of self-assessment and goal setting for career growth. By employing effective strategies for self-assessment and goal setting, individuals can gain clarity about their strengths, weaknesses, and aspirations, ultimately guiding their path towards professional advancement.
+This chapter focuses on the importance of self-assessment and goal setting for career growth. By employing effective strategies for self-assessment and goal setting, individuals can gain clarity about their strengths, weaknesses, and aspirations, ultimately guiding their path towards professional advancement.
 
 Understanding Self-Assessment
 -----------------------------
