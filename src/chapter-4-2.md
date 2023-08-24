@@ -1,5 +1,3 @@
-Active Listening, Conflict Resolution, and Relationship-Building
-=========================================================================
 
 In this chapter, we will explore the essential skills of active listening, conflict resolution, and relationship-building. These skills are crucial for becoming a promotable employee, as they contribute to effective communication, collaboration, and professional growth.
 

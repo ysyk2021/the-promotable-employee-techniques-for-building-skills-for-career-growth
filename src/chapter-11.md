@@ -1,5 +1,3 @@
-Chapter 11: Sustaining Career Growth Success
-============================================
 
 Achieving career growth success is a significant accomplishment, but it's important to remember that sustaining that success requires ongoing effort and dedication. In this chapter, we will explore strategies for sustaining career growth success and avoiding burnout.
 

@@ -1,5 +1,3 @@
-Chapter 3: Self-Assessment and Goal Setting
-===========================================
 
 In this chapter, we will discuss the importance of self-assessment and goal setting for career growth. We will explore strategies for identifying your strengths and weaknesses, setting career goals, and creating a personal development plan.
 

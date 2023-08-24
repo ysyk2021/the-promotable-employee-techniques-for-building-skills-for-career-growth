@@ -1,5 +1,3 @@
-Chapter 10: Navigating Setbacks and Challenges
-==============================================
 
 Setbacks and challenges are inevitable in the pursuit of career growth. In this chapter, we'll explore techniques for navigating setbacks and challenges.
 

@@ -1,5 +1,3 @@
-Prioritization, Goal Setting, and Eliminating Distractions
-===================================================================
 
 This chapter focuses on the significance of prioritization, goal setting, and eliminating distractions in achieving professional success. By mastering these skills, individuals can enhance productivity, maintain focus, and make progress towards their career goals.
 

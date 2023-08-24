@@ -1,5 +1,3 @@
-Chapter 8: Time Management and Productivity Skills
-==================================================
 
 Effective time management and productivity skills are essential for career growth. The ability to manage your time wisely and stay focused on important tasks can help you meet deadlines, achieve goals, and stand out as a promotable employee. In this chapter, we will explore techniques for improving time management and productivity skills, including prioritization, goal setting, and eliminating distractions.
 

@@ -1,5 +1,3 @@
-Chapter 4: Communication and Interpersonal Skills
-=================================================
 
 Communication and interpersonal skills are essential for career growth, particularly for those in customer-facing or team-based roles. In this chapter, we'll explore techniques for improving communication and interpersonal skills.
 

@@ -1,5 +1,3 @@
-Chapter 2: Defining Promotable Skills
-=====================================
 
 Defining promotable skills is an essential step in building a successful career. In this chapter, we will explore techniques for defining promotable skills and the benefits of doing so. We will also discuss the key elements of a successful promotable skills approach.
 

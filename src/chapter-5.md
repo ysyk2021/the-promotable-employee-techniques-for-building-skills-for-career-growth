@@ -1,5 +1,3 @@
-Chapter 5: Leadership and Management Skills
-===========================================
 
 Leadership and management skills are essential for career growth, particularly for those in managerial roles. In this chapter, we'll explore strategies for developing leadership and management skills.
 

@@ -1,5 +1,3 @@
-Techniques for defining promotable skills and their benefits
-===================================================================================================
 
 Defining promotable skills is an essential step in building a successful career. In this chapter, we will explore techniques for defining promotable skills and the benefits of doing so.
 

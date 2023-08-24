@@ -1,4 +1,3 @@
-# Chapter 6: Technical and Industry-Specific Skills
 
 ## Techniques for Building Technical and Industry-Specific Skills
 

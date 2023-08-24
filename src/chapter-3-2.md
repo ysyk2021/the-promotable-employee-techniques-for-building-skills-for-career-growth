@@ -1,5 +1,3 @@
-Identifying Strengths and Weaknesses, Setting Career Goals, and Creating a Personal Development Plan
-=============================================================================================================
 
 Understanding Your Strengths and Weaknesses
 -------------------------------------------
