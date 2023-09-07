@@ -12,3 +12,7 @@ In this book, we will explore the key principles of career development and provi
 Whether you are just starting out in your career or looking to take your skills to the next level, The Promotable Employee will provide you with the tools and insights you need to become a valued and respected member of your organization. By following the steps outlined in this book, you can build the skills and competencies needed to achieve your career goals and become a successful and promotable employee.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
