@@ -1,5 +1,4 @@
-Chapter: Building a Culture of Continuous Improvement and Growth
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Promotable Employee: Techniques for Building Skills for Career Growth," we will explore strategies for building a culture of continuous improvement and growth within organizations. Creating an environment that fosters learning, innovation, and personal development is crucial for individuals to thrive in their careers and contribute to the success of the organization.
 

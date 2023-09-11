@@ -1,5 +1,4 @@
-Chapter: Strategies for Sustaining Career Growth Success and Avoiding Burnout
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Promotable Employee: Techniques for Building Skills for Career Growth," we will explore strategies that can help individuals sustain career growth success while avoiding burnout. Achieving career growth is important, but it's equally crucial to maintain a healthy work-life balance, prioritize well-being, and avoid exhaustion.
 
